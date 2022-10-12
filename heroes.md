@@ -8,3 +8,4 @@
 * Robin
 * Volcán Negro
 * All Might
+* Joe Frazier
