@@ -8,6 +8,6 @@
 * Robin
 * Volcán Negro
 * All Might
-* Joe Fra
+* Joe Frazier
 
 ### Forever dont Forget
