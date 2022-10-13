@@ -20,3 +20,4 @@
 17. Katsumi Orochi
 18. Kaku Kaioh
 19. Retsu Kaioh
+20. Iron Michael
